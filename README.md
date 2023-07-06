@@ -17,3 +17,12 @@ https://www.realestatewitch.com/house-price-to-income-ratio-2021/
 Report: It’s Harder to Buy a House Today Than It Was During the Great Depression
 https://relevantmagazine.com/current/nation/report-its-harder-to-buy-a-house-today-than-it-was-during-the-great-depression/
 
+"The findings show the price of a median single-family house surged to $350,000 in the second quarter, a 10% jump from the previous quarter, one of the biggest increases in the past decade. 
+
+That price is also 2% above last year's peak, according to the report, before the spike in mortgage rates cooled demand among would-be homebuyers.  
+
+The portion of average wages required to own a home, meanwhile, skyrocketed to 33% in the period from April to June. That marks the highest debt-to-income ratio since 2007, meaning the market is the least affordable for Americans in nearly two decades.
+
+The lack of affordability is widespread across the country, with prices rising in about 98% of counties when compared to historical averages"
+
+https://www.foxbusiness.com/economy/housing-affordability-plummets-lowest-level-since-2007-prices-jump
