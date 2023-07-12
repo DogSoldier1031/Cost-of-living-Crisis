@@ -31,5 +31,8 @@ On a single night in 2022, roughly 582,500 people were experiencing homelessness
 https://www.huduser.gov/portal/sites/default/files/pdf/2022-AHAR-Part-1.pdf
 
 State of Homelessness: 2023 Edition
+"Homelessness has been on the rise since 2017, experiencing an overall increase of 6 percent.
+In 2022, counts of individuals (421,392 people) and chronically homeless individuals (127,768) reached record highs in the history of data collection.
+Unsheltered rates are also trending upward, impacting most racial, ethnic, and gender subgroups."
 https://endhomelessness.org/homelessness-in-america/homelessness-statistics/state-of-homelessness/
 
