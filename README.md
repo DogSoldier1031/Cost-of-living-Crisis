@@ -26,3 +26,10 @@ The portion of average wages required to own a home, meanwhile, skyrocketed to 3
 The lack of affordability is widespread across the country, with prices rising in about 98% of counties when compared to historical averages"
 
 https://www.foxbusiness.com/economy/housing-affordability-plummets-lowest-level-since-2007-prices-jump
+
+On a single night in 2022, roughly 582,500 people were experiencing homelessness in the United States. Six in ten (60%) were staying in sheltered locations—emergency shelters, safe havens, or transitional housing programs—and four in ten (40%) were in unsheltered locations such as on the street, in abandoned buildings, or in other places not suitable for human habitation.On a single night in 2022, roughly 582,500 people were experiencing homelessness in the United States. Six in ten (60%) were staying in sheltered locations—emergency shelters, safe havens, or transitional housing programs—and four in ten (40%) were in unsheltered locations such as on the street, in abandoned buildings, or in other places not suitable for human habitation.
+https://www.huduser.gov/portal/sites/default/files/pdf/2022-AHAR-Part-1.pdf
+
+State of Homelessness: 2023 Edition
+https://endhomelessness.org/homelessness-in-america/homelessness-statistics/state-of-homelessness/
+
