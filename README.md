@@ -36,3 +36,10 @@ In 2022, counts of individuals (421,392 people) and chronically homeless individ
 Unsheltered rates are also trending upward, impacting most racial, ethnic, and gender subgroups."
 https://endhomelessness.org/homelessness-in-america/homelessness-statistics/state-of-homelessness/
 
+"End of Pandemic-Era Expanded Federal Tax Programs Results in Lower Income, Higher Poverty
+September 12, 2023
+Written by:
+John Creamer and Matt Unrath
+Real median household income after taxes fell 8.8% to $64,240 from 2021 to 2022 and the poverty rate after taxes as measured by the Supplemental Poverty Measure (SPM) increased 59% to 12.4%."
+
+https://www.census.gov/library/stories/2023/09/median-household-income.html#:~:text=Real%20median%20household%20income%20after,increased%2059%25%20to%2012.4%25
