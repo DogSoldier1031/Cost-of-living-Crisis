@@ -43,3 +43,13 @@ John Creamer and Matt Unrath
 Real median household income after taxes fell 8.8% to $64,240 from 2021 to 2022 and the poverty rate after taxes as measured by the Supplemental Poverty Measure (SPM) increased 59% to 12.4%."
 
 https://www.census.gov/library/stories/2023/09/median-household-income.html#:~:text=Real%20median%20household%20income%20after,increased%2059%25%20to%2012.4%25
+
+https://www.visualcapitalist.com/visualizing-americas-1-trillion-credit-card-debt/
+
+https://www.fool.com/the-ascent/research/average-household-debt/
+
+https://www.lendingtree.com/credit-cards/credit-card-debt-statistics/
+
+https://time.com/personal-finance/article/average-american-savings-account-balance/
+
+https://www.statista.com/statistics/245405/total-credit-card-debt-in-the-united-states/
