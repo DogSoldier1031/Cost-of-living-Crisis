@@ -53,3 +53,7 @@ https://www.lendingtree.com/credit-cards/credit-card-debt-statistics/
 https://time.com/personal-finance/article/average-american-savings-account-balance/
 
 https://www.statista.com/statistics/245405/total-credit-card-debt-in-the-united-states/
+
+"US homelessness up 12% to highest reported level as rents soar and coronavirus pandemic aid lapses"
+
+https://apnews.com/article/homelessness-increase-rent-hud-covid-60bd88687e1aef1b02d25425798bd3b1
