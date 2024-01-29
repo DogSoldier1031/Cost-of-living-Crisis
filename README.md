@@ -7,6 +7,9 @@ Gen Zers and millennials are paying 57% more per gallon of gas than baby boomers
 
 https://www.consumeraffairs.com/finance/comparing-the-costs-of-generations.html
 
+"According to a Jan. 25 report from Harvard's Joint Center for Housing Studies, roughly 653,000 people reported experiencing homelessness in January of 2023, up roughly 12% from the same time a year prior and 48% from 2015. That marks the largest single-year increase in the country's unhoused population on record, Harvard researchers said. "
+
+https://www.cbsnews.com/news/rent-homelessness-harvard-report-center-for-housing-studies/
 
 Study: 1 in 3 workers in U.S. earn less than $15 an hour
 https://www.latimes.com/business/story/2022-03-22/study-1-in-3-us-workers-earn-less-than-15-an-hour
